@@ -11,8 +11,9 @@ I'm Jason, a passionate gamer and aspiring developer exploring the vast worlds o
 
 ### 🌟 Let's Connect:
 - 📫 Drop me a line: [jason.capitain80@gmail.com](mailto:jason.capitain80@gmail.com)
-- 💼 Check out my projects and contributions: [GitHub](https://github.com/JasonCapitain)
-- 🎮 Let's game together: [Xbox Live](gamertag: SoSgAmEr7890)
+- 💬 You can also add me on Discord: sosgamer7890
+- 💼 Check out my projects and contributions: [GitHub](https://github.com/SoSgAmEr7890r)
+- 🎮 Let's game together: Xbox Live gamertag: SoSgAmEr7890
 
 ### 🚀 My Mission:
 I'm on a quest to merge my love for gaming with my coding skills, creating innovative solutions and immersive experiences for all gamers worldwide.
